@@ -1,2 +1,3 @@
 # start-code
 hey i am here creating new repo for learning how can i use the github , i feel newbie for but i hear a quote that never be , ashmed start something because something is better nothing far right for us.
+hey missing something....
